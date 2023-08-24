@@ -1,5 +1,3 @@
-Developing Rapport and Trust
-=====================================================================
 
 Effective communication and persuasion are essential to successful negotiation. In this chapter, we will explore strategies for developing rapport and trust with the other party.
 
@@ -34,5 +32,4 @@ Conclusion
 Developing rapport and trust is essential to successful negotiation. By actively listening, showing respect, finding common ground, communicating clearly and honestly, and demonstrating reliability, negotiators can build strong relationships with the other party and achieve better negotiation outcomes.
 
 Thank you for reading this chapter. We hope that these strategies will help you to effectively develop rapport and trust in your negotiations and achieve success in your negotiation endeavors.
-
 

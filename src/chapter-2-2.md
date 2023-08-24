@@ -1,5 +1,3 @@
-The Benefits of Effective Negotiation Skills
-====================================================================================
 
 Negotiation skills are critical to achieving success in business. In this chapter, we will define negotiation skills and explore the benefits of effective negotiation skills.
 

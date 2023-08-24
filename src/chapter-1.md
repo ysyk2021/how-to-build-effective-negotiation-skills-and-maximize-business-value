@@ -1,5 +1,3 @@
-Introduction
-============
 
 Negotiation skills are critical to achieving business success, from securing profitable deals with suppliers to negotiating favorable contracts with clients. In this book, we will explore strategies for developing effective negotiation skills and maximizing business value through successful negotiations.
 

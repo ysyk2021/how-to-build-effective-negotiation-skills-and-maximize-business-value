@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Negotiation Strategies
-================================================================================
 
 Effective negotiation strategies are essential to achieving business goals and maximizing value creation. In this chapter, we will explore strategies for measuring the effectiveness of negotiation strategies during implementation.
 

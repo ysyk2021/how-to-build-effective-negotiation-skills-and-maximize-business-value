@@ -1,5 +1,3 @@
-Overcoming Barriers to Effective Implementation
-==========================================================================
 
 Effective negotiation skills are essential to achieving successful outcomes, but effective implementation is equally important. In this chapter, we will explore common barriers to effective implementation and strategies for overcoming them.
 

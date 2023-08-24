@@ -1,5 +1,3 @@
-Active Listening
-=========================================================
 
 Effective communication is essential to successful negotiation. In this chapter, we will explore the importance of active listening in negotiation and strategies for improving your active listening skills.
 

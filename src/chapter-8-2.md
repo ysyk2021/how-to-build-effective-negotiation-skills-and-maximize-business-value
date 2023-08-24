@@ -1,5 +1,3 @@
-Modeling Effective Negotiation Behaviors
-=======================================================================
 
 Leadership plays a critical role in creating a culture that supports effective negotiation skills. In this chapter, we will explore the importance of leaders modeling effective negotiation behaviors and strategies for doing so.
 

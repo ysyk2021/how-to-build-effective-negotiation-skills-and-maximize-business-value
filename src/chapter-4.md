@@ -1,5 +1,3 @@
-Chapter 3: Preparing for Negotiations
-=====================================
 
 Effective negotiation requires careful preparation and planning. In this chapter, we will explore strategies for preparing for negotiations.
 

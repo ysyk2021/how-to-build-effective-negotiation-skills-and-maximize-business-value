@@ -1,5 +1,3 @@
-Innovations in Negotiation Skills Training
-========================================================================
 
 As the business landscape continues to evolve, negotiation skills remain essential for achieving success. In this chapter, we will explore innovative approaches to negotiation skills training that can help organizations stay ahead of the curve.
 

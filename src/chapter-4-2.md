@@ -1,5 +1,3 @@
-Setting Goals and Developing a Strategy
-==============================================================================
 
 Effective negotiations require careful preparation. In this chapter, we will discuss the importance of setting goals and developing a strategy for negotiations.
 

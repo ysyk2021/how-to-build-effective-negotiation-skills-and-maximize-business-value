@@ -1,5 +1,3 @@
-Conducting Research and Gathering Information
-====================================================================================
 
 Effective negotiation requires careful preparation, including conducting research and gathering information. In this chapter, we will explore strategies for preparing for negotiations through research and information gathering.
 

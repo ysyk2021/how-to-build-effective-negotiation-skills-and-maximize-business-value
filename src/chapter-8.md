@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Effective negotiation skills are critical to achieving success in the business world. However, developing effective negotiation skills requires more than just individual effort. In this chapter, we will explore the role of leadership in supporting effective negotiation skills and maximizing business value.
 

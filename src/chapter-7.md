@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Effective negotiation skills are essential to maximizing business value. In this chapter, we will explore strategies for implementing effective negotiation skills and overcoming barriers to implementation.
 
@@ -28,5 +26,4 @@ Conclusion
 ----------
 
 Effective implementation of negotiation strategies is essential to maximizing business value. By prioritizing training and development, integrating negotiation skills into the overall business strategy, and overcoming barriers to implementation, individuals and organizations can achieve success in negotiation and drive long-term business success. Measuring the effectiveness of negotiation strategies is also critical to continuous improvement and ongoing success. By investing in the development of effective negotiation skills and committing to ongoing learning and development, individuals and organizations can build a culture of negotiation that drives long-term success.
-
 

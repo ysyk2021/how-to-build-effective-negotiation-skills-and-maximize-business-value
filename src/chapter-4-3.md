@@ -1,5 +1,3 @@
-Anticipating Possible Outcomes
-=====================================================================
 
 Effective negotiation requires careful preparation, including anticipating possible outcomes. In this chapter, we will explore the importance of anticipating possible outcomes and strategies for doing so.
 

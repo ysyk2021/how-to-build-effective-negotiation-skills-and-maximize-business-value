@@ -1,5 +1,3 @@
-Chapter 1: Defining Negotiation Skills
-======================================
 
 Negotiation skills are critical to achieving business success, from securing profitable deals with suppliers to negotiating favorable contracts with clients. In this chapter, we will define negotiation skills and explore their benefits and real-life examples.
 

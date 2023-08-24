@@ -1,5 +1,3 @@
-Creating Win-Win Solutions
-================================================================================
 
 Conflict is inevitable in any negotiation process. However, effective negotiation skills enable individuals to manage conflict and reach agreements that create value for all parties involved. In this chapter, we will explore strategies for managing conflict and creating win-win solutions.
 

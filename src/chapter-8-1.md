@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Effective Negotiation Skills
-================================================================================================
 
 Effective negotiation is essential to achieving business goals and maximizing value creation. In this chapter, we will explore the role of leadership in supporting effective negotiation skills.
 

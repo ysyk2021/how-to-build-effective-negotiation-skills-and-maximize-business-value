@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the business landscape continues to evolve, so do the challenges and opportunities associated with negotiation. In this chapter, we will explore some of the future directions for negotiation skills development and their potential impact on the business world.
 

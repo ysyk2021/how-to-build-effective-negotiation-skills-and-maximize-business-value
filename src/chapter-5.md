@@ -1,5 +1,3 @@
-Chapter 4: Communication and Persuasion
-=======================================
 
 Effective communication is critical to achieving success in negotiation. In this chapter, we will explore strategies for improving communication and persuasion during the negotiation process.
 

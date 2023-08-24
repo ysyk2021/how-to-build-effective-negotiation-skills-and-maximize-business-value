@@ -1,5 +1,3 @@
-What are Negotiation Skills?
-====================================================================
 
 Negotiation skills are essential to achieving success in business. In this chapter, we will define negotiation skills and explore their importance in the workplace.
 

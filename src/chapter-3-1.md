@@ -1,5 +1,3 @@
-Understanding the Impact of Negotiation Skills on Business Success
-===================================================================================================================================
 
 Negotiation skills are critical to achieving success in business. In this chapter, we will explore the impact of negotiation skills on business success.
 

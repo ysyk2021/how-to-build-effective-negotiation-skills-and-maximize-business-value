@@ -1,5 +1,3 @@
-Overcoming Impasses
-=========================================================================
 
 Negotiation can often reach an impasse, where both parties are unable to move forward or reach an agreement. In this chapter, we will explore strategies for overcoming impasses during the negotiation process.
 

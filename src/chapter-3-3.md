@@ -1,5 +1,3 @@
-The Risks of Leaving Value on the Table
-========================================================================================================
 
 Effective negotiation skills are essential to achieving business success and maximizing value creation. In this chapter, we will explore the risks of leaving value on the table and the impact that negotiation skills can have on business outcomes.
 

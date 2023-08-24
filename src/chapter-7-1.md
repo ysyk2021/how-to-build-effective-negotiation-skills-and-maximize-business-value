@@ -1,5 +1,3 @@
-Implementing Effective Negotiation Skills for Maximizing Business Value
-==================================================================================================
 
 Having effective negotiation skills is critical to maximizing business value. In this chapter, we will explore strategies for implementing effective negotiation skills in the workplace.
 

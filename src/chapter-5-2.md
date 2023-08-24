@@ -1,5 +1,3 @@
-Effective Questioning and Probing
-==========================================================================
 
 Effective communication and persuasion skills are essential to successful negotiation. In this chapter, we will explore strategies for using effective questioning and probing techniques to gain insights, understand the other party's perspective, and persuade them to consider new ideas or proposals.
 
@@ -34,5 +32,4 @@ Conclusion
 Effective questioning and probing is essential to successful negotiation. By starting with open-ended questions, asking follow-up questions, using active listening skills, avoiding leading questions, and being patient and persistent, negotiators can gain valuable insights into the other party's perspective and achieve better outcomes.
 
 Thank you for reading this chapter. We hope that these strategies will help you to effectively use questioning and probing techniques in your negotiations and achieve success in your negotiation endeavors.
-
 

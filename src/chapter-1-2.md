@@ -1,5 +1,3 @@
-Overview of Negotiation Skills
-============================================
 
 Negotiation skills are essential to achieving success in business. In this chapter, we will provide an overview of negotiation skills and their importance in the workplace.
 

@@ -1,5 +1,3 @@
-Examples of Successful Negotiations in Practice
-=======================================================================================
 
 Negotiation skills are essential to achieving success in business. In this chapter, we will explore examples of successful negotiations in practice and the key negotiation skills that contributed to their success.
 

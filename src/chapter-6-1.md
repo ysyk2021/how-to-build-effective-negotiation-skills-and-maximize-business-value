@@ -1,5 +1,3 @@
-Resolving Disputes
-========================================================================
 
 Conflict is an inevitable part of negotiation, but effective negotiators are able to manage conflict and reach mutually beneficial agreements. In this chapter, we will explore strategies for resolving disputes during the negotiation process.
 

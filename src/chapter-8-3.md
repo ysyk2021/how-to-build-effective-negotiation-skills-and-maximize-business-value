@@ -1,5 +1,3 @@
-Addressing Challenges and Setbacks
-=================================================================
 
 Negotiation can be a challenging process, and setbacks are common. In this chapter, we will explore the importance of leadership support in addressing challenges and setbacks during negotiation.
 

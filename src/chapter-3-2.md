@@ -1,5 +1,3 @@
-The Costs of Poor Negotiation Skills
-=====================================================================================================
 
 Poor negotiation skills can have serious consequences for business success and the achievement of organizational goals. In this chapter, we will explore the costs of poor negotiation skills and the impact they can have on business outcomes.
 

@@ -1,5 +1,3 @@
-Chapter 5: Managing Conflict and Reaching Agreements
-====================================================
 
 Conflict is an inevitable part of the negotiation process. In this chapter, we will explore strategies for managing conflict and reaching agreements.
 
