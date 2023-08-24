@@ -1,5 +1,4 @@
 
-
 Negotiation skills are essential to achieving success in business. In this book, we have explored the importance of effective negotiation skills and provided practical strategies for building these skills and maximizing business value.
 
 Summary of Key Points
