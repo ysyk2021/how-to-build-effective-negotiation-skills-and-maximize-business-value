@@ -1,5 +1,4 @@
-Chapter: What are negotiation skills?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiation skills refer to the ability to communicate effectively, understand others' perspectives, and reach mutually beneficial agreements. Negotiation is a critical part of everyday life, and developing strong negotiation skills can enhance personal and professional relationships while maximizing business value.
 

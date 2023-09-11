@@ -1,5 +1,4 @@
-Chapter: Innovations in Negotiation Skills Training
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiation skills are critical for business success, and organizations are continually seeking innovative approaches to train and develop these skills in their employees. This chapter explores the latest innovations in negotiation skills training, including technological advancements, experiential learning methods, and personalized approaches.
 

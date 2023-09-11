@@ -1,5 +1,4 @@
-Chapter: The Benefits of Effective Negotiation Skills
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective negotiation skills play a crucial role in maximizing business value and achieving successful outcomes. This chapter explores the various benefits that individuals and organizations can gain by developing and utilizing effective negotiation skills.
 

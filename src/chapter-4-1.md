@@ -1,5 +1,4 @@
-Chapter: Conducting Research and Gathering Information
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Research and information gathering are crucial components of effective negotiation. The more you know about the negotiation context, the parties involved, and the potential options, the better equipped you will be to make informed decisions and maximize business value. In this chapter, we will explore various techniques and strategies for conducting research and gathering information to enhance your negotiation skills.
 

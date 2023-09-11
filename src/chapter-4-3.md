@@ -1,5 +1,4 @@
-Chapter: Anticipating Possible Outcomes
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 One of the essential skills for successful negotiation is the ability to anticipate possible outcomes. Anticipating outcomes involves considering various scenarios and evaluating their likelihood and consequences. This chapter will explore different techniques and strategies for anticipating possible outcomes and preparing for them.
 

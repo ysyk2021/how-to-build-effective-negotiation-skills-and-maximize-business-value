@@ -1,5 +1,4 @@
-Chapter: Resolving Disputes
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Disputes are an inevitable part of any negotiation or business relationship. When conflicts arise, it is essential to have effective strategies for resolving them in a constructive and mutually beneficial manner. This chapter explores different approaches and techniques for resolving disputes and maintaining positive relationships.
 

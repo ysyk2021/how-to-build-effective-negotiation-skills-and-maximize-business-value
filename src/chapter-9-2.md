@@ -1,5 +1,4 @@
-Chapter: Addressing New Challenges in Negotiating
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiating is an ever-evolving discipline, and new challenges constantly arise in today's dynamic business environment. This chapter explores some of the emerging challenges in negotiating and provides strategies to address them effectively.
 

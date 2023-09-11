@@ -1,5 +1,4 @@
-Chapter: Looking Ahead to the Future of Business Negotiation
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The field of business negotiation is constantly evolving, and staying ahead of emerging trends is essential for success. In this chapter, we explore the future of business negotiation and discuss key trends and strategies that negotiators should embrace to thrive in the changing landscape.
 

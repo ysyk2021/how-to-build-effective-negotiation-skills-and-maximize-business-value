@@ -1,5 +1,4 @@
-Chapter: Addressing Challenges and Setbacks
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negotiations often encounter challenges and setbacks that can impede progress and hinder the achievement of desired outcomes. In this chapter, we explore common challenges in negotiation and provide strategies to address them effectively.
 

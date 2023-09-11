@@ -1,5 +1,4 @@
-Chapter: Active Listening
-=========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Active listening is a crucial skill that plays a vital role in effective negotiation. This chapter explores the importance of active listening, its benefits, and provides strategies for improving active listening skills in negotiations.
 

@@ -1,5 +1,4 @@
-Chapter: Modeling Effective Negotiation Behaviors
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of business negotiation, modeling effective behaviors is crucial for achieving successful outcomes. This chapter explores key negotiation behaviors and provides insights into how to develop and demonstrate them to maximize results.
 

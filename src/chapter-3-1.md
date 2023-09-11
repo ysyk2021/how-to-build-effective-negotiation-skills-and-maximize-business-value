@@ -1,5 +1,4 @@
-Chapter: Understanding the Impact of Negotiation Skills on Business Success
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective negotiation skills have a profound impact on the success and growth of businesses. This chapter explores the significance of negotiation skills and how they contribute to maximizing business value and achieving favorable outcomes.
 

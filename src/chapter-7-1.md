@@ -1,5 +1,4 @@
-Chapter: Implementing Effective Negotiation Skills for Maximizing Business Value
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective negotiation skills can have a significant impact on maximizing business value and achieving successful outcomes. This chapter explores the steps organizations and individuals can take to implement effective negotiation skills in their business practices.
 

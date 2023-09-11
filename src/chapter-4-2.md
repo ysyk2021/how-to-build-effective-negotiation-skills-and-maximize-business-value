@@ -1,5 +1,4 @@
-Chapter: Setting Goals and Developing a Strategy
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear goals and developing a well-defined strategy is essential for effective negotiation. This chapter will guide you through the process of setting goals and developing a strategy that aligns with your objectives. By understanding the importance of goal-setting and strategy development, you can maximize your chances of achieving successful negotiation outcomes.
 

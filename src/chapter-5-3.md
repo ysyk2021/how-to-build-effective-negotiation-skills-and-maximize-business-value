@@ -1,5 +1,4 @@
-Chapter: Developing Rapport and Trust
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing rapport and trust is a crucial aspect of effective negotiation. This chapter explores the importance of establishing strong interpersonal connections and fostering trust in negotiation settings and provides strategies for building rapport with counterparties.
 

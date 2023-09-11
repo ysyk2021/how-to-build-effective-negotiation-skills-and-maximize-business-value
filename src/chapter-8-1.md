@@ -1,5 +1,4 @@
-Chapter: The Role of Leadership in Supporting Effective Negotiation Skills
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective negotiation skills are critical for business success, and strong leadership plays a crucial role in supporting the development and implementation of these skills. In this chapter, we explore the role of leadership in fostering effective negotiation skills and maximizing business value.
 

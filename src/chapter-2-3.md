@@ -1,5 +1,4 @@
-Chapter: Examples of Successful Negotiations in Practice
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning from real-world examples of successful negotiations can provide valuable insights into the application of negotiation skills and strategies. This chapter highlights some notable examples of successful negotiations across various industries and contexts, demonstrating the effectiveness of skillful negotiation techniques.
 

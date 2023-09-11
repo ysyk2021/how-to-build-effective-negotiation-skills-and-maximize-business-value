@@ -1,5 +1,4 @@
-Chapter: Overcoming Impasses
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In negotiations, it is common to encounter impasses or deadlocks, where parties reach a stalemate and cannot make progress towards reaching an agreement. These impasses can be frustrating and hinder the negotiation process. However, with effective strategies and techniques, it is possible to overcome impasses and move forward towards finding a mutually beneficial solution. In this chapter, we will explore various approaches to overcome impasses and maximize business value.
 
